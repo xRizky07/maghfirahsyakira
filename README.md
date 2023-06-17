@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @maghfirahsyakira
+- 👋 Hi, I’m @xRizky07
 - 👀 I’m interested on you
 - 🌱 I’m currently learning to love you
 - 💞️ I’m looking to collaborate on a wedding with you
